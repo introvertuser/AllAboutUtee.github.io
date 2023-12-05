@@ -1,9 +1,5 @@
 Bismillahirrahmanirrahim.
-Atas berkat rahmat Allah SWT yang telah mencurahkan limpahkan rahmat dan karunianya sehingga saya dapat membuat website ini,
-dimulai dari tanggal 1 Desember 2023 sampai suatu hari nanti dimana saya tidak sanggup lagi mengupdate website ini.
-
-Website ini saya buat khusus untuk Ukhty Elvina dan saya sendiri tentunya, yang mana pada akhirnya website ini akan berisi tentang Utee
-Assalamualaikum wr.wb. Puji syukur atas rahmat Allah SWT, berkat rahmat serta karunia-Nya sehingga saya dapat membuat website ini (AllAboutUtee's),
+Assalamualaikum wr.wb. Puji syukur atas rahmat Allah SWT, berkat rahmat serta karunia-Nya sehingga saya diberikan kekuatan dan kesempatan untuk dapat membuat website ini (AllAboutUtee's),
 dimulai dari tanggal 1 Desember 2023 sampai suatu hari nanti dimana saya tidak sanggup lagi mengupdate website ini.
 
 Website ini dibuat dengan tujuan wadah tempat mencurahkan segala sesuatu baik senang, sedih, marah, sakit, apapun itu semua tentang Utee. Selain itu, penyusunan Website ini bertujuan menjalin kedekatan & hubungan lebih lanjut Ananda Nabbil Pratama (saya sendiri) dengan Ukhty Elvina (orang yang menjadi tokoh utama di website ini).
